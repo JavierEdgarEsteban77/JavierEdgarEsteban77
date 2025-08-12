@@ -8,11 +8,11 @@ Me entusiasma seguir creciendo en mi carrera como científico de datos y contrib
 
 Respecto a mi Background soy Perito Mercantil, y he estudiado (Técnico en Administración de Empresas & Lic en Gestión de Empresas - inconcluso).
 
+Blog: https://javieredgaresteban.blogspot.com/
+
 Puedes escribirme al siguiente e-mail: javieredgaresteban@gmail.com 
 
 Concertar una entrevista en: https://calendly.com/javieredgaresteban/reunion-entrevista 
-
-Blog: https://javieredgaresteban.blogspot.com/
 
 o también por WhatsApp puedes contactarme al siguiente link que es: https://wa.me/5492613003383 / https://wa.me/48578121258
 

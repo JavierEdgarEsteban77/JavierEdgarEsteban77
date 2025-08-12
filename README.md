@@ -12,7 +12,9 @@ Puedes escribirme al siguiente e-mail: javieredgaresteban@gmail.com
 
 Concertar una entrevista en: https://calendly.com/javieredgaresteban/reunion-entrevista 
 
-o también por WhatsApp puedes contactarme al siguiente link que es: https://wa.me/5492613003383 
+Blog: https://javieredgaresteban.blogspot.com/
+
+o también por WhatsApp puedes contactarme al siguiente link que es: https://wa.me/5492613003383 / https://wa.me/48578121258
 
 Espero tu contacto para que trabajemos juntos.
 
